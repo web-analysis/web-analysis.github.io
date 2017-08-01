@@ -1,19 +1,9 @@
 # web-analysis.github.io
 my blog
 
+# Post
+one day I eat some apples,
 
-# This is my blog, Welcome to my blog!!!!!!!!
+tomorrow I will eat some banana.
 
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
-# This is my blog, Welcome to my blog!!!!!!!!
+ldsfjlksdjfkkdlsfjlksdjfldsjkfl
